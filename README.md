@@ -1,3 +1,3 @@
 👋 Welcome to My GitHub 👋
 ⚡ I’m Pond Napatsawan
-🌱 graduate from Burapha University in Thailand
+🌱 Graduate from Burapha University in Thailand
